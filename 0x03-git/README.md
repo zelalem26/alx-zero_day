@@ -1,1 +1,1 @@
-My second readme
+Never give up!
